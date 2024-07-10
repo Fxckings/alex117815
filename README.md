@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @alex117815
 - 📫 tg: @zeijuro
-- site: zeijuro.ry
+- site: zeijuro.ru
